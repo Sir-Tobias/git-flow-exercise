@@ -1,6 +1,6 @@
 # Chocolate Soup
 
-JEnkin is here
+JEnkin is here again
 This is perhaps one of the richest, yet most beautiful desserts... it's simple and simply elegant at the same time. The sweet crunch of cinnamon toasted brioche croutons with rich, smooth, deep chocolate flavours!
 
 Source: https://sortedfood.com/recipe/10702
